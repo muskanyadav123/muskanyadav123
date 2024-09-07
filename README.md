@@ -1,7 +1,7 @@
 - 👋 Hi, I’m muskanyadav
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning galgotias University 
-- 💞️ I’m looking to collaborate on yes
+- 💞️ I’m looking to collaborate on you for increasing my coding skills
 - 📫 How to reach me a person in linkedin
 - 😄 Pronouns: 
 - ⚡ Fun fact: i'm fearing from a dog
